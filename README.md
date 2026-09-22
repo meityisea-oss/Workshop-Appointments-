@@ -1,0 +1,1 @@
+Free cyber security training programs and corporate social responsibility (CSR) initiatives provide zero-fee skill-building and digital safety workshops. Leading national programs and global platforms deliver structured, no-cost learning options paired with community-focused social impact activities.
